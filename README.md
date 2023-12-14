@@ -1,3 +1,3 @@
 # Appreciation
 
-Thanks for reading this article
+Thanks for reading this article.
